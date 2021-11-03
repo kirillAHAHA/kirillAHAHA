@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @kirillAHAHA
-- 👀 I’m interested i...HTML,JAVA.
+- 👀 I’m interested i HTML,JAVA.
 - 🌱 I’m currently learning  html,java.
 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...geforcegays@gmail.com
 
 <!---
